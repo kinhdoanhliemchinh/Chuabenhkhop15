@@ -1,0 +1,2 @@
+Trong điều trị đau khớp gối, bác sĩ có thể chỉ định cho bệnh nhân một số loại thuốc điều trị cũng như thực hiện các bài tập vật lý trị liệu được thiết kế riêng biệt để hỗ trợ điều trị giảm đau, tăng tuần hoàn, phục hồi chức năng của khớp gối nhanh chóng.
+https://medium.com/@chuabenhkhoptambinh/%C4%91au-kh%E1%BB%9Bp-g%E1%BB%91i-tri%E1%BB%87u-ch%E1%BB%A9ng-nguy%C3%AAn-nh%C3%A2n-v%C3%A0-c%C3%A1ch-%C4%91i%E1%BB%81u-tr%E1%BB%8B-a2e684a1abba
